@@ -5,3 +5,4 @@ ideas and resources
 - I have brown hair
 - I live with 2 cats
 - I like to be outside
+- i have one roommate
